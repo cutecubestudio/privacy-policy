@@ -1,4 +1,4 @@
-*Reasoning Riddles - Logical Riddles Edition
+*Reasoning Riddles - Logical Riddles Edition*
 
 **Privacy Policy**
 
