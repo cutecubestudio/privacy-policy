@@ -1,3 +1,5 @@
+*Reasoning Riddles - Logical Riddles Edition
+
 **Privacy Policy**
 
 Cute Cube Studio built the Reasoning Riddles app as a Free app. This SERVICE is provided by Cute Cube Studio at no cost and is intended for use as is.
